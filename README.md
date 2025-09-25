@@ -1,1 +1,2 @@
-RU chutiya hai
+RU chutiya hai 
+Nst ru ka papa hai
